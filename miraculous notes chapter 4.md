@@ -1,0 +1,193 @@
+**PDO REFLECTION**
+- pdo gets the bigger picture as things become clearr
+- started to "grok" the individual parts of the teachings as a more uniform whole
+- judgement on the group and pupils until he 'grew terrified' that he almost lost the chance
+
+**G theme of most importance**
+- Man's lines of development:
+  - Knowledge
+  - Being
+  - Develop paralell and help one another
+  - if one overdevelops man's development stops
+  - not being as existance/not existance
+	- a being of an anmial is not a man
+	- mineral not a man differs 
+	- people don't know that knowledge depends on being
+	- western can posess great knowledge in western culture
+		- but can be petty mean naieve absent minded etc.
+		- people disregard being
+		- people don't understand this
+		- if gets ahead of being, knowledge gets theoretical/abstract/harmful. doesn't serve life. complicates life brings new troubles
+	- not suited to mans' real needs
+	- form without essence
+	- part without whole
+	- determined by level of being
+		- limited, finite
+		- quality can't be change because one and being the same nature.
+		- can change only in nature of being.
+		- man thinks of a perm ego, 
+	- man lives and dies in sleep
+		- what knowledge can a sleeping man have?
+		- man must change being, wake up, before he can have knowledge.
+	- Being has many sides
+		- activity / passivity
+		- truthfulness / lying
+		- sincerity / insincerity
+		- courage / cowdarace
+		- self control / profligacy
+		- irritability 
+		- egoism
+		- rediness for self sacrifice
+		- pride
+		- vanity
+		- conceit
+		- industry
+		- laziness
+		- morality
+		- depravity
+		- more
+	- This is mechanical 
+		- liars can't help but lies,
+		- truth can't help but tell truth
+	- Being is infeior in modern man
+		- some cannot change
+		- broken machines
+		- majority
+		- being prevents knowledge reception
+	- One sided development seems attractive to people
+		- knowledge over being = man knows, can't do. useless knowledge
+			- G: a weak yogi, a man who does not understand. without appreciation. can't discern kinds of knowledge. - can't develop further
+		- being over knowledge = man has power to do but doesn't know
+			- useless efforts
+			- G: a stupid saint, can do a lot but doesn't knwo what to do. acts in obediance to his subective feelisngs, makes mistakse. does the opposite what he wants. - can't develop further
+	    - can't understand interrelation of knowledge and being.
+		- civilizations perished because of this imbalance
+	- knowledge and understanding
+		- one without the other doesn't give mroe of th4e other
+		- understanding depends on relation of/resultant of knowledge to being
+		- Change occurrs as a result of the simeltaneous growth of being and knowlege
+		- understanding therefore grows as a result of the growth of knowledge
+		- a person who is self aware can see how they're one and the same thought in different ways
+		- knowledge function of one center
+			brain can know but not feel or sense
+		- understanding a function of three centers
+			- person feels, knows, senses with it.
+		- mechanicalness can't be understood without feeling it with the being
+		- to know and to know who is different in sphere of practical activity. people do not understand this outside this so they label and say they understand.
+**Language**
+	- full of wrong conceptions, associatiosnn, classifications
+	- words can mean thousands of  meansings due above in each individual
+	- language is subjective with same words.
+	- each person speaks in a "separate langauge"
+	- people think they speak the same langauge
+		- incorrect
+		- their langauge is practical only
+			- lost once the sphere gets more complex
+		- illusions peoplke live example
+		- two people can say thes same thing but till argue over it.
+			- vice-versa
+	- each man puts special meaning into language
+		- the word "Man"
+			- as many meanings as people, nothing in common
+			- people invlo regard to their custom "man"
+			- one man may think in terms of man or woman
+			- another christian or not christian
+			- doctor: sick man or healthy 
+			- spiritualist: Astral body, other side life, mediums or non mediums
+			- naturalist: face, fingers, facial angles. 
+			- lawyer sees a client, criminal, a statisitc 
+			- moralist: good/evil
+	- people don't notice different language
+	- no universal language
+	- science has constant new names and nomenclatures
+	- misunderstanding increases
+	- people will undersatnd each other less and less
+	- To study an ancient system, therefore, it's important to establish a language
+	- based on relativity
+	- understanding will convey this knowledge in way normal practical sphere knowledge cannot
+	- The fundamental property of the new language is tha tall ideas in it are concentrated round one idea: they are taken in their mutual relationship to conscious evolution.
+
+**Evolution**
+- all things, planets, man, atoms, rise or descend, develops or decays
+- only degeneration and destruction proceed mechanically
+- that which doesn't evolve degenerates
+- "The language in which understanding is possible is constructed upon the indication of the relation of the object under examination to the evolution possible for it, upon it's indication of it's *place* on the evolutionay ladder"
+	- ideas are presented in terms of this ladder
+	- example: When speaking of man #1, man #2, man #3, man #4, man #5, man #6, man #7 
+		- people can understand which aspect we're speaking of
+		- Man 7 highest in evolution.
+			- conscious 
+			- a permanent unchangeable I
+			- individuality
+			- immortality
+			- properties we ascribe to ourselves ignorantly
+			- understands the path
+		- Man 6 close to 7
+			- some properties not permanent
+		- Man 5 reached unity
+		- Man 4 - intermediate
+		- Man 1, 2, 3
+			- mechanical humiaty
+		- Man 1
+			- psychic center is in the movement center
+			- man of the physical body
+			- movement outweighs the emotional and thinking
+		- Man 2
+			- same level of development as Man 1,3
+			- psychic center is emotional
+			- outweighs thinking and movement
+		- Man 3 
+			- same level of development as Man 1,2
+			- psychic center is intellectual
+			- thinking over emotional and movement
+		- Every man is born under one of these three 
+		- Man 4 
+			- only created after efforts of a definite character. 
+			- not created accidentally
+			- permanent center of gravity
+				- consists in his ideas
+				- his valuation of the work and school
+			- psychic centers begin to be balanced
+				- one center not over another
+			- begins to know himself and where he's going
+		- Man 5
+			- crystalized man
+				- cannot change like man 1,2,3 can
+			- can be result of right OR WRONG work
+				- can become 5 skipping 4 but stuck at 5
+				- or must melt his crystalized essence and lose his being of "Man 5"
+					- terrible suffering
+					- rare (fortunately)
+		division into 7 explains all that belongs to /created by man:
+			- reltivity as applied to man
+			- things can be one thing or another based ont eh pov of the "Man 1-7" talking.
+			- knowledge #1: immitation/instincts, leanred by heart, rote. like a parrot, monkey. 
+				- Being: Living by instincts
+				- Art: imitative, copying, crudely primitive
+				- religion: rites, external forms, sacrifices and ceremonies of imposing splendor and brilliance or gloomy cruel and savage
+					- Christianity: Hidden Pagan
+			- knowledge #2: what he likes, doesn't know wht he dislikes. just wants the pleasant. or vice-versa
+				- being: sentimental emotional man
+				- Art: sentimental art
+				- religion: faith, love, adoratiuon, impluse, enthusiasm, persecution, oppression, extermination
+					- Christianity: emotional, very pure without force, sometimes iwth bloodshed and horror (Inq)/ religious wars
+			- knowledge #3: subjectively logical thinking, words, literal understatnding, bookworms, scholastics.
+				- being: rational theoretical man
+				- art: intellectual, inverted
+				- religion: proofs, arguments logical deductions, interpretations and considerations.
+					- Christianity: forms of Protestentism, dialectic argument theories etc.
+			- knowledge #4: comes from man #5 (down from man 6, from man 7).
+				- assimilates what can with what has
+				- free from subjective knowledge toward path of objective knowledge
+			- knowledge #5: whole indivisible knowledge
+				- knowledge belongs to this indivisible "I"
+				- can't have one I that knows one thing that anotehr doesn't. is whole
+				- close to 'objective knowledge than man #4'
+			- knowledge #6: 
+				- complete knowledge possible to man but it can still be lost
+			- knowledge #7: own objective practical knowlege of all
+				- practically the same as being
+			
+			- *each being above will reduce Knowledge to it's understandable way*
+			- *Man can't live with christ's precepts becuase for the most part, everything 'happens' to them. not masters of themselves.*
+
