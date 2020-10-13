@@ -74,6 +74,7 @@
 			- person feels, knows, senses with it.
 		- mechanicalness can't be understood without feeling it with the being
 		- to know and to know who is different in sphere of practical activity. people do not understand this outside this so they label and say they understand.
+
 **Language**
 	- full of wrong conceptions, associatiosnn, classifications
 	- words can mean thousands of  meansings due above in each individual
