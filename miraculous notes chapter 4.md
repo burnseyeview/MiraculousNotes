@@ -76,37 +76,37 @@
 		- to know and to know who is different in sphere of practical activity. people do not understand this outside this so they label and say they understand.
 
 **Language**
-	- full of wrong conceptions, associatiosnn, classifications
-	- words can mean thousands of  meansings due above in each individual
-	- language is subjective with same words.
-	- each person speaks in a "separate langauge"
-	- people think they speak the same langauge
-		- incorrect
-		- their langauge is practical only
-			- lost once the sphere gets more complex
-		- illusions peoplke live example
-		- two people can say thes same thing but till argue over it.
-			- vice-versa
-	- each man puts special meaning into language
-		- the word "Man"
-			- as many meanings as people, nothing in common
-			- people invlo regard to their custom "man"
-			- one man may think in terms of man or woman
-			- another christian or not christian
-			- doctor: sick man or healthy 
-			- spiritualist: Astral body, other side life, mediums or non mediums
-			- naturalist: face, fingers, facial angles. 
-			- lawyer sees a client, criminal, a statisitc 
-			- moralist: good/evil
-	- people don't notice different language
-	- no universal language
-	- science has constant new names and nomenclatures
-	- misunderstanding increases
-	- people will undersatnd each other less and less
-	- To study an ancient system, therefore, it's important to establish a language
-	- based on relativity
-	- understanding will convey this knowledge in way normal practical sphere knowledge cannot
-	- The fundamental property of the new language is tha tall ideas in it are concentrated round one idea: they are taken in their mutual relationship to conscious evolution.
+- full of wrong conceptions, associatiosnn, classifications
+- words can mean thousands of  meansings due above in each individual
+- language is subjective with same words.
+- each person speaks in a "separate langauge"
+- people think they speak the same langauge
+	- incorrect
+	- their langauge is practical only
+		- lost once the sphere gets more complex
+	- illusions peoplke live example
+	- two people can say thes same thing but till argue over it.
+		- vice-versa
+- each man puts special meaning into language
+	- the word "Man"
+		- as many meanings as people, nothing in common
+		- people invlo regard to their custom "man"
+		- one man may think in terms of man or woman
+		- another christian or not christian
+		- doctor: sick man or healthy 
+		- spiritualist: Astral body, other side life, mediums or non mediums
+		- naturalist: face, fingers, facial angles. 
+		- lawyer sees a client, criminal, a statisitc 
+		- moralist: good/evil
+- people don't notice different language
+- no universal language
+- science has constant new names and nomenclatures
+- misunderstanding increases
+- people will undersatnd each other less and less
+- To study an ancient system, therefore, it's important to establish a language
+- based on relativity
+- understanding will convey this knowledge in way normal practical sphere knowledge cannot
+- The fundamental property of the new language is tha tall ideas in it are concentrated round one idea: they are taken in their mutual relationship to conscious evolution.
 
 **Evolution**
 - all things, planets, man, atoms, rise or descend, develops or decays
