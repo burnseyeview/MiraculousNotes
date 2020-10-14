@@ -74,7 +74,7 @@
 			- person feels, knows, senses with it.
 		- mechanicalness can't be understood without feeling it with the being
 		- to know and to know who is different in sphere of practical activity. people do not understand this outside this so they label and say they understand.
-
+		
 **Language**
 - full of wrong conceptions, associatiosnn, classifications
 - words can mean thousands of  meansings due above in each individual
@@ -104,9 +104,9 @@
 - misunderstanding increases
 - people will undersatnd each other less and less
 - To study an ancient system, therefore, it's important to establish a language
-- based on relativity
-- understanding will convey this knowledge in way normal practical sphere knowledge cannot
-- The fundamental property of the new language is tha tall ideas in it are concentrated round one idea: they are taken in their mutual relationship to conscious evolution.
+	- based on relativity
+	- understanding will convey this knowledge in way normal practical sphere knowledge cannot
+	- The fundamental property of the new language is tha tall ideas in it are concentrated round one idea: they are taken in their mutual relationship to conscious evolution.
 
 **Evolution**
 - all things, planets, man, atoms, rise or descend, develops or decays
@@ -178,9 +178,17 @@
 				- religion: proofs, arguments logical deductions, interpretations and considerations.
 					- Christianity: forms of Protestentism, dialectic argument theories etc.
 			- knowledge #4: comes from man #5 (down from man 6, from man 7).
+				- Being
 				- assimilates what can with what has
 				- free from subjective knowledge toward path of objective knowledge
+				- Christianity #4 - man 1-3 has no conception of it.
+					- xianity is 1-3 is external immitation/instincts
+					- strives to be xitan Man #5 actually is christian
+						- to live in accordance with christs precepts
+						- 1-3 can't live in accord due to their not being self masters, can't really BE christian
+					
 			- knowledge #5: whole indivisible knowledge
+				- BEing: so on
 				- knowledge belongs to this indivisible "I"
 				- can't have one I that knows one thing that anotehr doesn't. is whole
 				- close to 'objective knowledge than man #4'
@@ -188,7 +196,89 @@
 				- complete knowledge possible to man but it can still be lost
 			- knowledge #7: own objective practical knowlege of all
 				- practically the same as being
-			
-			- *each being above will reduce Knowledge to it's understandable way*
+			- *each being above will reduce Knowledge to who he is himself*
 			- *Man can't live with christ's precepts becuase for the most part, everything 'happens' to them. not masters of themselves.*
+			- religions of man are 1-3
 
+**Language (again)**
+- Take the word "world", "mir"
+	- each person has own conception of "world"
+	- christian: world means god, creation, end of world, simple world
+	- vedantic: world, maya, illusions
+	- Theosophist: Astral, planes, physical, mental etc
+	- spiritualist - world of spirtis
+	- Physicist - world of molcules atoms, structure
+	- phenominal, numinal, world of good/evil, material immaterial. etc
+- people each have multitude verstions of "world"
+- must study man and universe in parallel 
+- man, by knowing himslef because he is made of the same stuff as the world, will know the world, laws (vice-versa)
+- study must run parallel
+- we live in several "worlds"
+	- worlds one within another
+	- world nearest is organic plants
+		- organic life world, earth is world.
+			- world for earth is planteary world of solar system
+				- for sun, world is stars, milky-way, solar systems
+	- all worlds must be one whole, all, absolute
+		- world for all worlds
+		- the all is infinite and indivisible
+		- primordal state of things, by division and differenat6ion arives us, and our phenomina
+		- man is influenced by nearest world
+		- other worlds affect man but diminished by remoteness
+	- fundamental law that creats all phenomena: law of three, principles, forces, 
+		- all is a result of theses three opposing forces
+		- the third is often not included.
+		- third force can create a phenominon.
+		- three forces:
+			1. Active
+			2. Passive
+			3. Neutralizing
+			- only in relation to one another
+			- always active
+			- 3rd force isn't easily accessible to view
+				- found in mans' psyche and perceptions
+				- man studying himself, his habits, desires etc. man can see the action of the three forces.
+					- man's desire is the active force.
+					- inertia to psychial is the negative forces
+					- counterbalance or one will conquer
+					- one evolves around the other never producing a result
+					- until 3rd force appears through work on oneself
+						- iniative conquers inertia
+					- can be found in all phenomina of self, nature. 
+					- we don't observe the world in our subjectively
+				- our perception is not complete
+				- 3 forces make one whole
+				- they make a complete unity, unity of will
+				- trinities, brahmah vishnu shiva, so on
+					- at their junction they create worlds.
+				- all three force meeting point
+					- there can be found the active, passive or neutralizing force.
+					- forces here are different than the absolute 3 forces.
+					- absolute their meeting point is depent upon will
+					- second order of the three is accidental or mechanical meeting points.
+			    - absolute as a circle
+					- ABSOLUTE IS 1
+					- three forces is number 3
+					- three divided forces, worlds in second order create worlds of third order
+					- the third order forces depend on mechanical laws.
+					- three new forces are created to make 6 (third order 3+3)
+					- forth order worlds 12 forces, 3 + 6 + 3
+					- worlds are further away from the absolute and more mechanical
+					   - so on , 48, 3+ 6+ 12 +23
+					   - 96 forces fus;lafkjasd;lfkasdfa
+					   - 192 forces and so on.
+					- worlds like 3 are similar to starry worlds 
+					- world like 6 would be an accumulation of stars like milky way
+					- world 12 would be planets
+					- world 48 earth
+					- chain of worlds and links to the absolute.
+						- forms the ray of creation.
+						- the world in the widest sense of the term.
+						- each new world creates a separate -- possibly infinite -- ray of creation.
+						- and the further breaking up of this ray.
+					- we choose our sun as our closest star
+					- planetary world is cloests of that world to us. 
+					- the more laws, the more mechanicalness
+					- our world is 48, far away from the absolute.
+					- this way the ray of creation establishes our place.
+					- influences of worlds are defined by law of three, and the law of 7, law of octaves
