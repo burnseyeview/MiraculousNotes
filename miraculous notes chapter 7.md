@@ -1,0 +1,82 @@
+- cosmic consciousness isn't defined well
+	- daydreaming, intesified work of the emotional center
+	- subjective emotional experience like dreams
+	- first define consciousness anwyay 
+	- Can know consciousness in self
+	- define moments when close to consciousness
+	- moments of consciousness are short separated by mechanical unciousness machine
+	- work, act, speak without being consciousness
+	- possibility of consciousness
+	- principles: 
+		- G question: most important thing to notice during self observ.
+		- incessant flaws imposisble to stop
+		- hard to distinguish between centers
+		- wholeness of a sysstem...like an organism - PDO
+		- most important: you do not remember your selves. you do not feel yoruselves. not consicous of selves. it observes mechanically. 
+		- not I notice I observe I see.
+		- first of all REMEMBER ONESELF while observing. these are the valued results
+		- nobody nkows they are asleep
+		- if a man knows he cannot remember himself, he is closer to his being
+
+**REMEMBER MYSELF**
+- I am walking-- feel the "I". can't think, speak. dim sensations
+- short
+- stopping thought light in yoga, reminded PDO of SR
+- divided attention directed toward feeling of self, the other toward the action.
+	- useful in practice. 
+	- characteristic feature in SR
+	- when observing, direct attn to object. 
+	- when remebering myself, the attention appears, with two arrow heads one toward self, one toward observation.
+	- directing the attentino on self without weakening is the difficulty.
+	- SR is not like self analysis or self feeling. own flavor, own state
+	- SR does happen naturally but rarely.--new unexpected surrounding. I am in this strange place.
+		- danger
+		- emotional states
+		- early recollections of life was self remembering
+		- moments of self remembering lasted in memory than whenthey were not.
+		- memory inefficient
+		- provides a new sensory experience
+		- feeling houses in st. petersberg. while remembering self. sensations came up of themselves. 
+		- unsuccessful observations
+			- one walk, distractions everywhere. thread lost, found, lost and so on.
+			- tobacco shop...two hours later lost it lol
+			- "came to" recalled all the things
+			- central thing to the system. 
+			- psychology -- we are sleepign. 
+		- ingroup understood
+		- out group didn't .. took too lightly
+		- this is not new ~others, an apoception
+
+- study of man must run parallel to study of world
+	- some laws easier observed in world, others, man
+	- unity in everything. comparing different orders of phenomena
+- laws of three
+	- first law of universe. positive, neg, neutralizing
+**Law of Seven (of octaves)**
+- universe consistes of vibraions of all kinds
+- before natural vib weakening, resistance, the vibs develop uniformly in absense of resistance (per science of the time)
+- force of original vibrations are not uniform 
+- vibrations determined on anture of impulse etc
+- vibs slowdown, change nature direction, acend slow, descend slow. a temp retardation
+- vibs enter uniformly until a chekc in their development
+- vibs double as they increase
+- say 1000/sec after a time it doubles
+- during this interval there are two places where retardation and decrease of vib.
+	- near begining
+	- near end
+	- divided into 8 steps with step 8 repeating the first. an octave
+	- 8 unequal parts
+- 7 tone scale forgotten and refound. a formula of a cosmic law woprked out by ancient schools and applied to music
+- 7 tone scale is a good foundation for the law
+- begins wiht 1000 vibs / sec call it Do. frequency increases, by 2000/sec Do again but of the next octave
+- Do Re will be 9/8....
+	- (just look at all the diagrams. not notating all that.)
+- law of octaves create a circle through the semitones between ra and si
+- known to ancient knowledge
+- during some points in the octaves require additioanal 'shock'
+- the big cosmic octave forms the ray  of creation beginning with the ALL.
+- then divided further 
+- organic life on earth transmits to earth all the influences requried. 
+- then the moon is re then back to Do.. nothing
+- Holy trinity absolute or all, absolute or Nothing, and between all and nothing is the Ray of Creation.
+- a plan of the universe
